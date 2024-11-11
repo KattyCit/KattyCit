@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @KattyCit
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning coding languages
+- 💞️ I’m looking to collaborate on certain video game
+- 📫 How to reach me: gmail and some other things in the future...and here, I guess.
+- 😄 Pronouns: I am not going to say right now...
+- ⚡ Fun fact: I have already done stuff on Scratch under KattyCitGames.
